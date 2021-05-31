@@ -2,7 +2,7 @@
 
 ## Myself
 
-I'm Lucie, but I'm mostly known as _luclu7_ online (sometimes with a capital L, sometimes not, it doesn't really matter). I'm a 17 years old human in french high school.
+I'm Lucie, but I'm mostly known as _luclu7_ online (sometimes with a capital L, sometimes not, it doesn't really matter). I'm a 18 years old human in french high school.
 
 Languages spoken: I'm pretty fluent in English and I'm a french native
 
