@@ -16,7 +16,7 @@ Pronouns: she/they
 
 ## 💻 computer-related stuff
 
-I'm still a student so almost everything I do is on my free time. I mostly do stuff in JavaScript (/TS/Node.js), Swift for iOS, and a bit of Python. I do love Vue.js, but React is fine.
+I'm still a student so almost everything I do is on my free time. I mostly do stuff in JavaScript (/TS/Node.js), Swift for iOS, and a bit of Python. I learnt to love React, but Vue.js is still in my ❤️
 
 🚊 I love public transit and to build transit-related apps using (open) data
 
