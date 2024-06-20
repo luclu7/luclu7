@@ -2,7 +2,7 @@
 
 ## Myself
 
-I'm Lucie, but I'm mostly known as _luclu7_ online. I'm a 20 years old human in french university.
+I'm Lucie, but I'm mostly known as _luclu7_ online. I'm a 21 years old human in french university.
 
 Languages spoken: I'm pretty fluent in English and I'm a french native
 
