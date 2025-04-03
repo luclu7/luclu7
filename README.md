@@ -8,7 +8,7 @@ Languages: French (native), English (fluent)
 
 Pronouns: she/they
 
-## 📪 How to reach me:
+## 📪 How to reach me
 
 - [Telegram](https://t.me/luclu7) (preferred)
 - Email: me+github at luclu7 dot fr
