@@ -8,6 +8,8 @@ Languages: French (native), English (fluent)
 
 Pronouns: she/they
 
+You can find my [portfolio here](https://www.ldelest.re/en/)!
+
 ## 📪 How to reach me
 
 - [Telegram](https://t.me/luclu7) (preferred)
