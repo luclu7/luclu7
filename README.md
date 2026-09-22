@@ -2,7 +2,7 @@
 
 ## About me
 
-I'm Lucie, but I'm mostly known as _luclu7_ online. I'm a 22 years old human in french engineering school.
+I'm Lucie, but I'm mostly known as _luclu7_ online. I'm a 23 years old human in french engineering school.
 
 Languages: French (native), English (fluent)
 
