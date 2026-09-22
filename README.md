@@ -6,7 +6,7 @@ I'm Lucie, but I'm mostly known as _luclu7_ online. I'm a 23 years old human in 
 
 Languages: French (native), English (fluent)
 
-Pronouns: she/they
+Pronouns: she/her
 
 You can find my [portfolio here](https://www.ldelest.re/en/)!
 
